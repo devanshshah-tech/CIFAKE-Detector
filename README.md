@@ -92,4 +92,4 @@ Vrushali Ranadive
 [Github](https://github.com/Vrushali31) | [LinkedIn](https://www.linkedin.com/in/vrushali-ranadive-79437a20a/)
 
 Devanshu Shah
-[Github](https://github.com/devanshu-777) | [LinkedIn](https://www.linkedin.com/in/devanshu-shah777/)
+[Github](https://github.com/devanshshah-tech) | [LinkedIn](https://www.linkedin.com/in/devanshshah-tech/)
